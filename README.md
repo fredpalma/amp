@@ -1,1 +1,1 @@
-# AMP links and exameples
+# AMP links and examples
